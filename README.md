@@ -2,6 +2,8 @@
 - 👀 Estou interessado em aprender mais 
 - 🌱 estou aprendendo a progamar
 - 📫 e-mail de contato -> fernando.henriquemichaloskida.silva@escola.pr.gov.br
+- 🔴 estou atualmente trabalhando num projeto, onde estou buscando compradores para comprar nossos produtos 🔴
+- 🥇Vendo brincos peróla diversas cores e tamanhos 🥇 e 💠 também vendemos diversos brincos cor diamante cor prata 💠
 
 <!---
 SuperDogBR/SuperDogBR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
